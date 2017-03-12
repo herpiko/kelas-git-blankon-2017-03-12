@@ -1,5 +1,2 @@
-Haiii
+coba saya hapus semua
 
-Hai juga
-
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv..
